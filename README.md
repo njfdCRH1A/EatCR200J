@@ -45,3 +45,5 @@ Github Page:https://arcxingye.github.io/EatKano/index.html
 ## 南福CRH1A的整活版：吃掉CR200J（难视）
 
 综上所述，这玩意的涂装实在是一言难尽所以我们就吧它刷回原色罢（
+
+借物：CR200J车头图像：http://trainfrontview.net/
